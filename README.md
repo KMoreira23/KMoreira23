@@ -13,7 +13,7 @@
 - 💞️ I’m looking to collaborate on new projects.
 
 - 
-- 📫 How to reach me ...
+- 📫 Contact me  ;)
 
 - 
 
